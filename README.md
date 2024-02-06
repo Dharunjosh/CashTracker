@@ -1,1 +1,1 @@
-Hey i'm Web dev 
+Hey i'm Web dev and freelancer
